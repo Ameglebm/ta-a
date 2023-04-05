@@ -1,0 +1,1 @@
+A pessoa que resolve um problema que não sabes que exist, de uma forma que tu não consegues entender kkkkk
